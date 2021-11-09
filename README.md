@@ -10,3 +10,5 @@ Twitter: https://twitter.com/@notimpostoyt
 Reddit: https://reddit.com/r/NotImpostorYT
 
 
+NO SPAM, it is uncool, and you don't want to be uncool
+Right?
