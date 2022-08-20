@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NotImpostoYTOfficial
+- 👋 Hi, I’m NotImpostoGDOfficial
 - 👀 I’m interested in ... Making a game
 - 🌱 I’m currently learning ... Coding
 - 📫 How to reach me ...
